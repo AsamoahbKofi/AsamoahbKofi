@@ -2,7 +2,7 @@
 - 👀 I’m interested in (Data science, Machine learning and deep learning) AI
 - 🌱 I’m currently learning Object Detection
 - 💞️ I’m looking to collaborate on don't know yet tho...
-- 📫 How to reach me : email:asamoahbkofi@gmail.com
+- 📫 How to reach me : email:asamoahbkofi03@gmail.com
 - number:+233203388287
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
