@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on............. don't know yet tho...
 - 📫 How to reach me : email:asamoahbkofi03@gmail.com
 - number:+233203388287
+- I keep learning ,I keep improving ,I keep getting better
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
